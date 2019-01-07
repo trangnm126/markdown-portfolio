@@ -1,0 +1,1 @@
+![Image of Quirijn](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwiOzYGQpNvfAhUNdt4KHdQFAtwQjRx6BAgBEAU&url=https%3A%2F%2Fnl.linkedin.com%2Fin%2Fquirijn-van-dierendonck-0979b8a1&psig=AOvVaw0rXi_A8ELQmlARyw4JwbyP&ust=1546937149230035)
